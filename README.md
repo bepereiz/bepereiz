@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bepereiz
-- 👀 I’m interested in elves
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning ancient language of tartessos
-- 💞️ I’m looking to collaborate on paintings
+- 💞️ I’m looking to nothing really. Just living ma life.
 - 📫 How to reach me: violecov@gmail.com :DDD
 
 <!---
